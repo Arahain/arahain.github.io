@@ -1,1 +1,1 @@
-# arahain.github.io
+# Der Luzerner Hammer
